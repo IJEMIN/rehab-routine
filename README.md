@@ -47,3 +47,7 @@ The middle scalene muscle is located in the neck and is surrounded by several ot
 - 목 전면 신전 운동
 - 목 돌리기로 목 풀어주기
 - 온찜질 20분
+
+## 운동 팁
+
+## 주의해야 할것
